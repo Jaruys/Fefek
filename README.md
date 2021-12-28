@@ -1,0 +1,1 @@
+KONTOL LU PADA
